@@ -1,1 +1,2 @@
-(ata)[https://malfuncti0nz.atabook.org]
+https://malfuncti0nz.atabook.org
+idk bro
