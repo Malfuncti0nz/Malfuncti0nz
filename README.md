@@ -1,1 +1,1 @@
-i hate this
+(ata)[https://malfuncti0nz.atabook.org]
